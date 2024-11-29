@@ -33,7 +33,7 @@ Recuerda que el objetivo principal es divertirse. Balloon está diseñado para o
 
 En Argentina, el acceso a juegos en línea como Balloon es cada vez más sencillo gracias a plataformas que operan legalmente y ofrecen una experiencia segura. Algunas de estas plataformas cuentan con licencias reguladas que garantizan la transparencia y seguridad del juego.  
 
-Si quieres empezar, te recomendamos explorar sitios especializados como [**juego Balloon Argentina**](https://balloonjuegoargentina.com/), donde encontrarás toda la información necesaria para disfrutar del juego y realizar tus apuestas de manera segura.
+Si quieres empezar, te recomendamos explorar sitios especializados como juego Balloon Argentina, donde encontrarás toda la información necesaria para disfrutar del juego y realizar tus apuestas de manera segura.
 
 ---
 
